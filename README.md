@@ -1,6 +1,6 @@
 
 # Siteler sürekli güncellenecektir. 
-* Türkiye Adil Kazanç Sistemi (Çok iyi para kazandırdığı söyleniyor) - http://tadexibajtuta2fx.onion
+* Türkiye Adil Kazanç Sistemi (Çok iyi para kazandırdığı söyleniyor ama denemedim şahsen) - http://tadexibajtuta2fx.onion
 
 * Türkish black market (işe yaramaz) http://turkishceiuuezlw.onion/
 * Türk Deep Web (en son çalışıyordu forum gibi bir şey) http://c2fblkhithuxn5hv.onion/index.php
