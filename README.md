@@ -2,7 +2,7 @@
 # Siteler sürekli güncellenecektir. 
 * Türkçe deep web index sitesi http://tadexibajtuta2fx.onion
 * DEEPTR - Deeb web'de gördüğüm en aktif türkçe forum sitesi http://deeptr7jzltz5ua7gyfvorvhwcvgvw6zfqexs26u5yx446yfedpf46yd.onion
-* AZRAIL - Deep web türkiye kiralık katil sitesi (scam olabilir) http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion kapandı
+* AZRAIL - Deep web türkiye kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion kapandı
 * Anontürk Forum (SCAM!!) http://turkiyex6fkt46ra.onion kapandı
 * Türk Deep Web (gidip geliyor en son çalışıyordu forum gibi bir şey) http://c2fblkhithuxn5hv.onion/index.php
 * Türkçe deep web market http://xprqjjnon7ryev3qs3ctjnj6f37wvgmnlp4oawwztzdb5aldawjpkmqd.onion
