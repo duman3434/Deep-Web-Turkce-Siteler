@@ -11,5 +11,4 @@
 * Escrow/Ödeme Aracılığı Sitesi - şahsen birkaç defa işim düştü ödeme yatırma herşey otomatik işliyor ek olarak email üzerinden destek veriyorlar, ilgililer. Deep web üzerinden ödeme yapacaksanız bu siteyi kullanmanızı tavsiye ederim. http://escrowtra4utbzsi.onion
 * Acil erişim merkezi (forum değil - http://imtrjn3qe2tzh5ae.onion/aem-2826)
 * Hukuki istihbaraat http://tgrnn4foazzcxlmv.onion/?page_id=6 (bana saçmalık gibi geldi açıkçası :))
-* Turkish hidden services http://nxe5yp74wct5dngm.onion/
-* AZRAIL - Deep web türkiye kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion/
+* Turkish hidden services http://nxe5yp74wct5dngm.onion/ - kapandı
