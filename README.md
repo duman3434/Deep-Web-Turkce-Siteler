@@ -1,8 +1,8 @@
 
 # Siteler sürekli güncellenecektir. 
 * Türkçe deep web index sitesi http://indexzz7n3cq4slh5bh2lcctmiwk2y7epxjvkpyaemtuat2alprveyid.onion
-* DEEPTR - Türk forum sitesi http://deeptr7jzltz5ua7gyfvorvhwcvgvw6zfqexs26u5yx446yfedpf46yd.onion
-* AZRAIL - Deep web türkiye kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion kapandı
+* AZRAIL - Türk kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion 
+* Deep Türkiye http://deeptrheyytwpb5xehoz32zmnqkp4ldebt2n26zfufnaznmltjbmpmyd.onion
 * Anontürk Forum http://turkiyex6fkt47ra.onion
 * Türk Deep Web (gidip geliyor en son çalışıyordu forum gibi bir şey) http://c2fblkhithuxn5hv.onion/index.php
 * Türkçe deep web market http://xprqjjnon7ryev3qs3ctjnj6f37wvgmnlp4oawwztzdb5aldawjpkmqd.onion
