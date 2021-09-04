@@ -12,4 +12,4 @@
 * Turkish hidden services http://nxe5yp74wct5dngm.onion
 
 # %Scam (dolandırıcılık maksatlı açılan) siteler
-* siberhareket
+* siberhareket forum 
