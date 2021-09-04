@@ -11,5 +11,5 @@
 * Hukuki istihbaraat http://tgrnn4foazzcxlmv.onion/?page_id=6 (bana saçmalık gibi geldi açıkçası :))
 * Turkish hidden services http://nxe5yp74wct5dngm.onion
 
-# %100 scam siteler
+# %Scam (dolandırıcılık maksatlı açılan) siteler
 * siberhareket
