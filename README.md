@@ -4,7 +4,7 @@
 * Deep Türkiye http://deeptrheyytwpb5xehoz32zmnqkp4ldebt2n26zfufnaznmltjbmpmyd.onion
 * Liberty Forum http://libertyax7z735whsmbirn5lzpiv4bq6vz6bd3ivrgvv3yjw4xos54qd.onion/
 * Türk Deep Web (gidip geliyor en son çalışıyordu forum gibi bir şey) http://c2fblkhithuxn5hv.onion/index.php
-* Türkçe deep web market http://xprqjjnon7ryev3qs3ctjnj6f37wvgmnlp4oawwztzdb5aldawjpkmqd.onion
+* Türkçe deep web market http://neptunebzv7mctq2dvtrwiwbkbnylgyvzduw7ft2jqpd25rmzfxrjgqd.onion
 * Başa bir türkçe deep web market daha (gidip geliyor) http://turkishcejuuezlw.onion
 * Türkiye Adil Kazanç Sistemi (hayatın adil olmadığına inanan insanları bir arada hareket etmeye teşvik ediyor ve böyle bir sistem ile para kazanmayı vaadediyor - üyelik açtım ama hareketlerine katılamadım daha) - http://tadexibajtuta2fx.onion
 * Acil erişim merkezi (forum değil - http://imtrjn3qe2tzh5ae.onion/aem-2826)
