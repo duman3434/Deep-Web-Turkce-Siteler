@@ -1,6 +1,6 @@
 # Siteler sürekli güncellenecektir. 
 * Türkçe deep web index sitesi http://indexzz7n3cq4slh5bh2lcctmiwk2y7epxjvkpyaemtuat2alprveyid.onion
-* Deep Turkish Web Forum http://deeptrheyytwpb5xehoz32zmnqkp4ldebt2n26zfufnaznmltjbmpmyd.onion
+* Deep Turkish Web Forum http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion
 * AZRAIL - Türk kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion 
 * Liberty Forum http://libertyax7z735whsmbirn5lzpiv4bq6vz6bd3ivrgvv3yjw4xos54qd.onion/
 * Türkçe deep web market http://neptunebzv7mctq2dvtrwiwbkbnylgyvzduw7ft2jqpd25rmzfxrjgqd.onion
