@@ -11,4 +11,4 @@
 * Turkish hidden services http://nxe5yp74wct5dngm.onion
 
 # Scam!!!! (Dolandırıcılık yapan siteler)
-* redturk.org forum 
+* sanal.org (eski redturk.org forum) 
