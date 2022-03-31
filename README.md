@@ -1,4 +1,4 @@
-# Siteler sürekli güncellenecektir. 
+# GÜNCEL TÜRK DEEP WEB SİTELERİ
 * Türkçe deep web index sitesi http://indexzz7n3cq4slh5bh2lcctmiwk2y7epxjvkpyaemtuat2alprveyid.onion
 * DARK Turkish Forum http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion
 * AZRAIL - Türk kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion 
