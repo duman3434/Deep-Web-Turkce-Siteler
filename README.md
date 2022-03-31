@@ -1,7 +1,7 @@
 # GÜNCEL TÜRK DEEP WEB SİTELERİ
 ![Türkçe deep web siteleri](https://i.postimg.cc/HWw5DXWT/t-rk-e-deep-web-siteleri.jpg)
-* Türkçe deep web index sitesi http://indexzz7n3cq4slh5bh2lcctmiwk2y7epxjvkpyaemtuat2alprveyid.onion
-* DARK Turkish Forum http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion
+## Türkçe deep web index sitesi http://indexzz7n3cq4slh5bh2lcctmiwk2y7epxjvkpyaemtuat2alprveyid.onion
+## DARK Turkish Forum http://deepxljj2ik7yzpum23zd3gwyq5iryjnezsle7bsvcfovnhqyrk4vxid.onion
 * AZRAIL - Türk kiralık katil sitesi http://azrail4b42chtxjsydxhr3psgqhyntrzuknlzu57ji2a5owofvpkbsad.onion 
 * Liberty Forum http://libertyax7z735whsmbirn5lzpiv4bq6vz6bd3ivrgvv3yjw4xos54qd.onion/
 * Deep web market http://uvyybhmbvuhxjsaifaskznpll6h4jpaqmqaezfvjbwlmey7v6svzntid.onion
